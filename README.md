@@ -1,1 +1,2 @@
 "helo"
+bankai thensha zangethsu
